@@ -26,7 +26,7 @@
 
 > 由此可见，clowwindy在网络安全方面有欠缺之处。不过其本人为前网易员工，不排除仅仅是因为网名暴露。
 
-![](https://bbvsukzcbmlmapdkuybx.supabase.co/storage/v1/object/public/bed/0.09850597984958709.webp)
+![](https://raw.githubusercontent.com/retsuakiko-sg/articles/main/pics/art1-p1.webp)
 
 ### 总结
 
